@@ -1,3 +1,6 @@
+<img width="1983" height="793" alt="ChatGPT Image Aug 1, 2026, 04_12_26 AM" src="https://github.com/user-attachments/assets/3e656485-3c8b-49f7-ad3e-bc98a42ba19b" />
+
+
 <h1 align="center">Hi 👋, I'm Yash Trivedi</h1>
 
 <h3 align="center">
